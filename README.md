@@ -1,2 +1,2 @@
 # lilnaszScriptHub
-Hey, this is lilnasz script hub. We have a discord, but is not currently public. I will leave the link to my discord if   IcyDevs#1125 you have any problems with the script hub
+Hey, this is Lil Nas Z V0.1. We have a discord, join it https://discord.gg/VATSzzgae6 this is an executer and beamer tool, it's also a script hub. 𝙁𝙤𝙪𝙣𝙙𝙚𝙙 1/3/2022
